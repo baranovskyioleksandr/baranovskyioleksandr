@@ -1,1 +1,1 @@
-# baranovskyioleksandr
+нульову ллабораторну виконано
